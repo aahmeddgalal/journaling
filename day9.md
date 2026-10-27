@@ -1,0 +1,1 @@
+today i lost 2 of my fav ppl
